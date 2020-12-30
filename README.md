@@ -1,4 +1,4 @@
-# 色中色直播最新下载地址（2020年12月31日更新）
+# 深蓝直播最新下载地址（2020年12月31日更新）
 ### [http://www.bingonle.com/boy](http://www.bingonle.com/boy)
 
 # 直播平台回家页
